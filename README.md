@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @gulenemrullah
+- yeni üye oldum 
+- kendimi cripto para üretmek Türkiye de bir ilki gerçekleştimek için yeni çalışmalara başlamak istiyorum
+- beni takımına alabilirsin veya benimle ayrı bir takım olabilirsin
+- imkansız değil şimdiye kadar ki en iyi prıje olabilir 
+- sadece istemek çok çalışmak yeterlidir 
+- güzel bir çalışma sonucucu bunu başaracağım sende başarıma ortak olmak için benimle çalışabilirsin ya da beni takımına alabilirsin
+- teşekkürler
